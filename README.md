@@ -1,1 +1,1 @@
-https://SadChewie.github.io/rsschool-cv/cv
+https://SadChewie.github.io/rsschool-cv/
