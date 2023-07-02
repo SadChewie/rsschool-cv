@@ -1,1 +1,1 @@
-# rsschool-cv
+https://SadChewie.github.io/rsschool-cv/
